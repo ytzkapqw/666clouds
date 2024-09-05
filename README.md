@@ -6,7 +6,7 @@
 ![六六云怎么样？六六云介绍和测评](https://github.com/user-attachments/assets/c02e71f0-98c2-4c73-b282-6db4c9a9f4b4)
 
 ## 六六云 官网地址
-六六云官网：[https://666clouds.com/aff.php?aff=1828)
+六六云官网：[https://www.666clouds.com](https://666clouds.com/aff.php?aff=1828)
 
 ## 六六云 优惠码
 目前提供的优惠码为：`11ATV2A6NF`，使用后可以享受部分产品8折优惠。  
